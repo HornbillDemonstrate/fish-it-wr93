@@ -1,4 +1,4 @@
-#  
+#  أفضل escape tsunami for brainrots سكربت هو أفضل escape tsunami for brainrots سكربت مع ESP و الحصاد التلقائي. آمن، موثوق، ومُحَسّن لأقصى أداء.
 
 
 
